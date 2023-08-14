@@ -1,1 +1,1 @@
-# Jayapratha_portfolio
+# Jayapratha_projects
